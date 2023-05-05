@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Noobie31
 - 👀 I’m interested in Nothing 
-- 🌱 I’m currently learning affter effects
+- 🌱 I’m currently learning affter effects, python, web developing, 
 - 💞️ I’m looking to collaborate on amv editing
 - 📫 How to reach me : u cant.... CRY -_-
 
